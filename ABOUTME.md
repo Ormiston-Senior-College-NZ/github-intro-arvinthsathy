@@ -6,7 +6,7 @@ I live in a house with both parents, one grandma and my two brothers. I have one
 
 _**My Interests:**_
 
-One of my main interests outside of school is watching sports. I mainly enjoy watching football(support chelsea), cricket and basketball and occasionally I watch tennis or baseball. I also enjoy gaming and socialising with my friends outside of school.
+One of my main interests outside of school is watching sports. I mainly enjoy watching football, cricket and basketball and occasionally I watch tennis or baseball. I also enjoy gaming and socialising with my friends outside of school.
 
 _**My Future Goals:**_
 
